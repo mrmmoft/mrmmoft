@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mrmmoft
+- 👀 I’m interested in playing Counter-Strike Global Offensive
+- 🌱 I’m currently learning at scripting
+- 📫 You can reach me on Instagram or Steam
